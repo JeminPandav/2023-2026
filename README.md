@@ -1,3 +1,3 @@
 # 2023-2026
-Under Graduate 
+At VICAIT 
 BSC.IT
