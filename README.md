@@ -1,3 +1,3 @@
 # 2023-2026
 At VICAIT 
-BSC.IT
+BSC.IT (Bachelor of Science in Information Technology)
